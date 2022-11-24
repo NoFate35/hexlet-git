@@ -1,1 +1,1 @@
-Haskell Curry
+IVAN SOOO
